@@ -1,4 +1,4 @@
-### 吸收意识 ∈ 
+### 吸收意识
 |![](http://latex.codecogs.com/gif.latex?\{E=mc^2})|
 |---|
 
